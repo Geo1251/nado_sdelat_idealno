@@ -1,1 +1,1 @@
-# nado_sdelat_idealno
+https://github.com/Geo1251/nado_sdelat_idealno
